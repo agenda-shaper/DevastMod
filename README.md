@@ -1,4 +1,13 @@
-### Hi there 👋
+### https://discord.com/invite/PXeCSyrTZN
+
+### https://devastmod.github.io/
+
+
+Devast.io Modded by: ﹙HypR﹚𐍅ᗩᗰᗴƬᗴ
+
+DevastMod by HypR Clan | Vision Hack, Build on Roads, Autorun, Disabled Ads, See mines, camo and more
+
+This is a Hacked Client version of devastio game
 
 <!--
 **DevastMod/DevastMod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

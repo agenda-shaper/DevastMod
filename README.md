@@ -1,6 +1,7 @@
-### https://discord.com/invite/PXeCSyrTZN
+### ⚙️ https://devastmod.github.io/
 
-### https://devastmod.github.io/
+### ☑️ https://discord.com/invite/PXeCSyrTZN
+
 
 
 Devast.io Modded by: ﹙HypR﹚𐍅ᗩᗰᗴƬᗴ

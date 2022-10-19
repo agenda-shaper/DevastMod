@@ -2,14 +2,10 @@
 
 ### ☑️ https://discord.com/invite/PXeCSyrTZN
 
-
-
-Devast.io Modded by: yamete
-
 ![image](https://user-images.githubusercontent.com/102901194/196738406-149a6e35-863d-4377-801a-93fa9db7e240.png)
 
 
-DevastMod by HypR Clan | Vision Hack, Build on Roads, Autorun, Disabled Ads, See mines, camo and more
+DevastMod by yamete | Vision Hack, Build on Roads, Autorun, Disabled Ads, See mines, camo and more
 
 This is a Hacked Client version of devastio game
 

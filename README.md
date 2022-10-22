@@ -1,4 +1,4 @@
-### ⚙️ https://devastmod.github.io/
+### ⚙️ https://devastmod.org/
 
 ### ☑️ https://discord.com/invite/PXeCSyrTZN
 
